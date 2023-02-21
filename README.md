@@ -14,7 +14,7 @@
 
 🎋 My wish to visit Japan🇯🇵.
 
-🚀 My hobby is night sky watcher.
+🚀 My hobby is star grazing.
 
      Just to explore 🌌 constellation and
 
