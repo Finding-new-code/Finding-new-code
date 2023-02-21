@@ -10,7 +10,7 @@
 
             unexpected features.
 
-🧿  I Went to explore more and more.
+🧿  I Want to explore more and more.
 
 🎋 My wish to visit Japan🇯🇵.
 
