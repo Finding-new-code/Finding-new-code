@@ -6,19 +6,19 @@
 
 🎉My code never has bugs,
 
-       it just develops random
+       It just develops randomly
 
             unexpected features.
 
-🧿  I Want to explore more and more.
+🧿  I want to explore more and more.
 
-🎋 My wish to visit Japan🇯🇵.
+🎋 My wish to visit Japan🗾.
 
 🚀 My hobby is star grazing.
 
-     Just to explore 🌌 constellation and
+     To explore 🌌 the constellation and
 
-     Search for meteor shower.🌠
+     Looking for a meteor shower.🌠
 
 🍛 I'm a foodie. Love to eat.
 
