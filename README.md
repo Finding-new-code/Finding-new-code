@@ -48,7 +48,7 @@
 
 ### 😂Random Dev Meme
 
-<img src="https://random-memer.herokuapp.com/" width="512px"/>
+<img src="https://meme-api.com/gimme/2" width="512px"/>
 
 ---
 
